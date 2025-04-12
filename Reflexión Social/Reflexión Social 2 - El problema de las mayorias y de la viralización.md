@@ -1,0 +1,1 @@
+Ateos irritados como dawkins y otros, origen de esa aversión a ka religión, ellos no nos representan, la aversión a la gente no es el camino, martires y protestas aumentan la religión, por qué no optar por la religión, el problema de la democracia

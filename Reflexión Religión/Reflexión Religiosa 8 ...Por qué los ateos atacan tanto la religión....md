@@ -1,0 +1,9 @@
+Primero que todo, no sabria afirmar con datos qué tanto atacan a la religión los ateos. Lo que si puedo decir es que la atacan y por diversos motivos. Uno de los motivos mas conocidos es que para ellos la religión les produce resentimiento y rebeldía por un trauma, situaciones por medio de las cuales la religión les manipuló o limitó su experiencia de vida, o puede ser un acto de rebeldía contra sus padres o figuras de autoridades o el pensamientos establecido en su entorno.  
+  
+  
+Otra de las circunstancias en donde un ateo podría atacar a la religión es como en mi caso. Mi experiencia con la religión no fue violenta. Nadie me generó un trauma ni limitó mi experiencia de vida. Tampoco me quitaron dinero ni me obligaron a nada mas que asistir a la iglesia. Sin embargo, cuando abrí los ojos de esta situación tan humillante poco a poco me fui dando cuenta del peligro que representaba la religión para la vida humana. Una persona puede reaccionar ante un evento externo a él si, por ejemplo, representa un peligro para los suyos. Si bien no soy una persona demasiado empática o amigable, si reaccionaba como si alguien viniera a imponer una creencia sectaria.  
+  
+Podríamos decir, en menos palabras, que uno puede reaccionar contr algo o alguien si se siente amenazado o se ve amenazado algo que le importa.  
+  
+  
+Aun con los esfuerzos, no es sencillo hacer entrar en razón a una persona, o porque es demasiado ingenua como para entender que está cometiendo un error o para ganarle a sus sesgos, o porque dedicó demasiado tiempo a sus ideas estudiandolas y reafirmandolas al punto de que le va a costar tirar todo eso a la basura.

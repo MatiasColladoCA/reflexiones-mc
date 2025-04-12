@@ -1,0 +1,15 @@
+@p.rscllv a que le llamas entendimiento? A los proceoss habituales de aplicar hermenutica, logica, analisis, filosofia? El problema mas comun del creyente es que le llama "espiritu" a tener valores a la hora de investigar, tener criterio y especialmente no desistir en la crrencia de que la biblia tiene la razón. Se apropian de cosas comunes como ma razón, la honestidad, la atención a los sesgos, y le llaman "espiritu santo" cual vikingo llamandole dios a los procesos de la naturaleza. Los testigos oculares que mencionas, no son mas que fuentes biblicas cuyo conflicto de intereses es innegable e ineludible. ¿Que mas hay que confirme esos testigos? No hay mas que suposiciones, que tambien pueden hacerse en su contra: se promulga que 500 personas lo vieron y mas avistamientos que en al desesperaci9n de las circunstancias la esperanza se exparse sin demasiado cuestionamiento y oposición. Al cabo de unos meses el relato se vuelve un hecho incomprobable y gente profundamente suceptible a las creencias y a los sesgos por su falta de educacion, adolesciendo de ciencia, lógica y tantas otras herramientas modernas para el pensamiento, se aferran behementemente Las unicas fuentes extrabiblicas mencionan lejanamente a cristo y sus seguidores.  
+  
+  
+  
+22:46  
+  
+19%.  
+  
+Comentarios  
+  
+la razón. Se apropian de cosas comunes como ma razón, la honestidad, la atención a los sesgos, y le llaman "espiritu santo" cual vikingo llamandole dios a los procesos de la naturaleza. Los testigos oculares que mencionas, no son mas que fuentes biblicas cuyo conflicto de intereses es innegable e ineludible. ¿Que mas hay que confirme esos testigos? No hay mas que suposiciones, que tambien pueden hacerse en su contra: se promulga que 500 personas lo vieron y mas avistamientos que en al desesperacion de las circunstancias la esperanza se exparse sin demasiado cuestionamiento y oposición. Al cabo de unos meses el relato se vuelve un hecho incomprobable y gente profundamen- te suceptible a las creencias y a los sesgos por su falta de educacion, adolesciendo de ciencia, lógica y tantas otras herramientas modernas para el pensamiento, se aferran vehementemente a la unica luz que les evita tirar a la basura tanto sacrificio. Las unicas fuentes extrabiblicas mencionan lejana- mente a cristo y sus seguidores. ¿De que resurrección hablas? Luego, q cosas se cum- plieron? Podemos charlar largo y tendido. Cualquier con conocimientos sobre un tema con la capacidad de levantar a una legión de seguidores seguro es capaz de elaborar buenas predicciones. Actualmente tenemos a economistas, sociólogos, etc. Y por ultimo, a pesar de q la salvacion es por fe (creencia) la creencia está ligada a lod argumentos. Asi que si hay salvacion, somos salvos por entender y corroborar argumentos Responder  
+  
+Agrega un comentario...  
+  
+Publicar

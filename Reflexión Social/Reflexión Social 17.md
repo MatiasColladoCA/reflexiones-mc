@@ -1,0 +1,1 @@
+Pertenecemos a una cultura en la que el error es algo vergonzoso. Si bien, lo vergonzoso siempre ha sido aquello que nos muestra vulnerables o aquel evento que constituye un motivo suficiente para excluirnos de un grupo, el error es necesario, y en consecuencia, la vergüenza.

@@ -1,0 +1,9 @@
+ "Pensamientos" es auto explicativo. Sencillamente es un espacio donde publico lo que, durante muchos años, he desarrollado a prueba y error, viviendo y aprendiendo. El conocimiento probablemente es lo mas valioso que el humano puede valuar. Para aquel que piense que el amor, la amistad o la felicidad son mas importantes, yo les tengo que decir que definitivamente son cosas importantes, cuyo hallazgo, valor y protección inevitablemente solo podrá suceder a través del conocimiento. Es decir, el conocimiento es el vehículo por el cual todas nuestras valoraciones cobran sentido.
+
+El blog consta principalmente de tres ramas: reflexiones sobre religión, introspectivas y sociales. Si bien, estos conceptos están intrínsecamente interconectados, por cuestiones de organización decidí manejar las publicaciones bajo esas tres categorías.
+
+Este blog es solo el principio, no busco presentar mi palabra como la última verdad o como el fruto de profundas investigaciones. Lo que se y lo que creo saber solo son fruto de mi circunstancia, pero el ego de vez en cuando puede inclinarme a pensar que algo de esto es merito mío. Paulatinamente, por medio de las correcciones sugeridas, este blog alcanzará un grado de curación que garantice que quien lea no solo lea mi experiencia, sino la experiencia compartida de una comunidad. Estos pensamientos están avocados a un plan que busca que cada entrada se vaya actualizando y acercando a los argumentos mas coherentes y mejor sostenidos a mi alcance.
+
+Cada comentario va a ser bien recibido siempre que venga desde una buena intención. Cada sugerencia que considere mejor que lo que he escrito, implicará una actualización del post que se esté comentando.
+
+Gracias por tu tiempo.

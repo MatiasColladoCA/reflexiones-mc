@@ -1,0 +1,1 @@
+ La realidad es una, las percepciones infinitas. Cada quien tiene su vida cimentada no en la realidad, sino en lo que alcanza a percibir de ella. Mientras mas amplia es la percepción, mas se percata uno de que lo que vive es su percepción y no la realidad misma. Y si aumentamos mas la percepción, mas cerca estará la misma de la realidad.

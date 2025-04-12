@@ -1,0 +1,1 @@
+Si nuestros métodos de investigación y conocimiento no concluyen nada en favor de una hipótesis, podemos decir que la hipótesis carece de sentido y validación, o que nuestro conocimiento no alcanza a entender que la hipotesis tiene sentido.

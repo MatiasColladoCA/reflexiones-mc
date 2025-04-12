@@ -1,0 +1,27 @@
+Existen etapas del aprendizaje. El proceso desarrollado por el concepto del efecto Dunning-Krugger es esencial.  
+  
+  
+Para cada etapa siempre se cumple una cosa esencial: la persona solo piensa, ama, odia, busca, desea, planea, se relaciona, e interpreta en función de sus estandares, y sus estandares son fruto de sus conocimientos.  
+  
+Luego de las primeras dos etapas, siempre se cumple otra cosa esencial exclusiva: este proceso se repite para todos los ambitos del conocimiento. Esto es independiente de la edad, y mas bien se superan cuando el individuo es consciente de estas etapas, por lo que ahora tenderá a tener una conducta mas dubitativa y menos propensa en caer en la totalidad de la etapa. Mas bien el individuo se vuelve un espectante de sus etapas, pero por un principio del ego que le refrena de pasar vergüenza gratuita, no se expone ante el mundo exterior sino que retiene las conductas propias de las etapas.  
+  
+La ignorancia desconocida  
+La persona comienza no preocupandose por el conocimiento. Considera que le basta con lo que es, que sus estandares son parte de su personalidad. Juzga al mundo en función de esto. No interioriza empáticamente de manera efectiva en las conductas e ideas de los demas, sino desde las suyas propias. Puede tener la suerte de un gran desarrollo empático como no. Al no conocer su ignorancia, aborda la cuestión de las autoridades como una verdad absoluta; si son mas grandes saben mas y por ende saben lo que dicen mejor que yo. No hay un proceso sofisticado de duda, ni para si mismos ni para lo exterior. A este individuo es facil hacerle creer cosas erradas sobre el mundo o sobre si mismos. Tiende a tener muchas especativas sobre el mundo exterior y sobre si mismo y ademas las mismas son fragiles. En función de su entorno puede terminar inspirado si las espectativas son satisfechas, o devastado si las espectativas son destruidas.  
+  
+La epistemología emocional  
+Se confía de la información adquirida pero como todavía no reconoce su ignorancia (sino una parte de ella), se considera suficientemente informado como para confrontar las afirmaciones ajenas. La arrogancia es primordial, y si bien puede tener un bajo perfil, no puede evitarse. Las figuras de autoridad son ya sea incompetentes cuando contrarían el lado mas emocional del individuo, o una fuente de verdad cuando debe juzgarse en base a las propias ideas del individuo (es decir que la autoridad será usada para confirmar y potenciar la idea). La seguridad en el conocimiento es esencial, es una prueba suficiente de la sabiduría o información propias. En función del conocimiento hasta este momento, el individuo se cree exclusivamente racional y la emoción pierde relevancia.  
+  
+La ignorancia conocida  
+Corresponde tanto al proceso de las dos etapas anteriores como de cualquier proceso de conocimiento. El individuo aprende suficiente información como para reconocerse ignorante en lo que aprende. Puede sentirse deprimido o en malestar, porque debe reconsiderar sus ideas anteriores, debe deshabituarse de la arrogancia y debe juzgar las autoridades que antes veía como confiables. Sus conversaciones son mas imparciales: él como el otro son ignorantes y hace falta conocer más. Reconoce que puede equivocarse. Prima la duda frente a casi cualquier cuestión porque esa duda se centra en una perdida de autoestima, por lo que mas cosas pueden salir mal o ser erroneas.  
+  
+La ignorancia aplicada  
+El individuo reconoce su ignorancia en le resto de areas, y comprende que no puede abarcarlas. Del mismo modo en su mente despoja a la autoridad, de la cualidad que antes le había otorgado: el saber. La autoridad queda rebajada a un mero humano que conoce de algo, y si bien puede acertar sobre un campo en el que se especializa, nada garantiza la verdad mas que la evidencia. El conocimiento riguroso se alimenta de la comprensión de varios campos a la vez, por lo que se mantiene a la defensiva y con una mente abierta. Aplica este criterio para validar las especulaciones ajenas.  
+  
+La especialización  
+El individuo se mantiene alerta ante la información pero ya sabe comprender las cosas. Recupera la confianza en si mismo. Disfruta de una comunidad que refuerza sus ideas pero él sabe cuestionarse y cuestionar a los demás. Cree que la inteligencia que ha adquirido y que el proceso de maduración que ya pasó son suficientes para darse lugar a opinar aseguradamente, de cuestiones que le son externas.  
+  
+especialización ignorante  
+El individuo se atribuye inteligencia en campos que no le pertenecen. Al percatarse de como creció en estas etapas anteriores, se considera sabio y  
+  
+Sabiduria  
+El individuo comprende la probabilidad de verdad que tiene cada conocimiento, que cada quien aprende partes de la verdad pero que la realidad no puede ser alcanzada por los humanos. Es tanto un especialista en sus campos como un estudiante en los otros. Reconoce la autoridad intelectual a la que se somete como estudiante y la que respeta como especialista. Se abstiene de razonar emocionalmente, pero la emoción es parte de sus axiomas. Es decir, sabe pensar estructuradamente y si bien la emoción no es parte de su estructura, la estructura en sí, obedece o trabaja para la emoción. Entonces el individuo se vuelve una fusión balanceada entre la razón y la emoción.

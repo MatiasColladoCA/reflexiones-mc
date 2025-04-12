@@ -1,0 +1,4 @@
+
+La solución de un problema demanda proactividad. Definir el problema nos abre los ojos para saber con qué estamos tratando pero actuar nos permite utilizar ese conocimiento para resolver la situación. Es difícil demandar acción a una persona que está postrada por el dolor, sin embargo poder definir el problema nos ayuda a ver que el problema no se trata de la vida sino de nuestra perspectiva y experiencias. Gracias a esto podemos ver que hay una luz al final del túnel, lo que nos da esperanzas. Reconozco que cada acción de mi vida dio gracias a tener fe en que habían esperanzas, en que si seguía luchando, si seguía intentando y caminando, finalmente iba a llegar a donde quería. Esta esperanza en que se puede solucionar el problema nos puede dar la fuerza necesaria para poner en practica la solución y disfrutar de la única existencia que tenemos. De otro modo desperdiciaríamos lo mas complejo conocido por la humanidad, la vida consciente.
+
+

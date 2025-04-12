@@ -1,0 +1,1 @@
+Una vez muerta la civilización, volverá a emerger tarde o temprano. Al universo le restan aun millones de años antes de siquiera poner a prueba la hipotesis de la muerte termica o big crunch. El cuidado del ambiente, comunidad e individuo no solo importan para vivir el hoy y el mañana, sino por una apreciación de la vida
